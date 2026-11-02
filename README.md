@@ -5,5 +5,6 @@
 
 
 - 🔭 I’m currently studying in Hong Kong. Looking forward to make friends!
+- ✨ I'm currently learning Cantonese.
 
 
